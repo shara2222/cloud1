@@ -1,1 +1,1 @@
-AJA TRABAJEN ATT SEBAS
+grupo de pagina sobre la tecnologia 
